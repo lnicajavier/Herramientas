@@ -1,6 +1,1 @@
-![357-SOLDADOR RANGER DE COMBUSTION INTERNA](https://github.com/lnicajavier/Herramientas/assets/118224105/b1706536-25b3-432b-8019-04f807f32c0c)
-![356- MAQUINA DE SOLDAR LINCOLN MIG MAG](https://github.com/lnicajavier/Herramientas/assets/118224105/4214a0a5-abc9-44ae-b091-6f2386152766)
-![355-SOLDADOR ELECTRICO LINCOLN RX-520](https://github.com/lnicajavier/Herramientas/assets/118224105/a380fc94-681a-4ca0-af28-e4df7f98b42c)
-![354-SOLDADOR ELECTRICO LINCOLN RX-520](https://github.com/lnicajavier/Herramientas/assets/118224105/10268054-7d1a-451f-82de-33943dd93301)
-![353 SOLDADOR ELECTRICO 0011 IMFRA](https://github.com/lnicajavier/Herramientas/assets/118224105/3a3d6468-809d-4f75-8b83-bd1e9a360027)
 ![352-Soldador Electrico lincoln](https://github.com/lnicajavier/Herramientas/assets/118224105/5c82fc44-ed0c-4019-b944-a2920f0ed887)
